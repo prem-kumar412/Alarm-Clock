@@ -47,6 +47,7 @@ For any questions or inquiries, please contact
 
 🔗 Author - @prem Kumar - premaa412@gmail.com 
 
-✅ Linkedin : https://www.linkedin.com/in/prem-kumar-138651258/ ✅
-✅ Github :  https://github.com/prem-kumar412             ✅
+✅ Linkedin : https://www.linkedin.com/in/prem-kumar-138651258/ 
+
+✅ Github :  https://github.com/prem-kumar412             
 Enjoy your alarm clock experience!
